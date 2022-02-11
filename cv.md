@@ -4,7 +4,7 @@
 # Yupatov Alexey
 ## Contact information
 
-* phone: +375336487170 
+* phone: +37533******** 
 * e-mail: AlexYoup@outlook.com
    
 ### About myself
